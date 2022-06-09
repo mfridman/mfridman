@@ -1,4 +1,3 @@
-> Stay curious, keep learning, help others, be humble.
->
+Stay curious, keep learning, help others, be humble.
 
 🤔.📚.🤝.❤️
